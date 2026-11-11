@@ -1,4 +1,4 @@
-###  I'm Sokina Ismailova👋
+###  I'm Sokina 👋
 
 <p align="center">
   
